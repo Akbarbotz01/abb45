@@ -5,11 +5,11 @@
 <div align="center">
   </a>
     <br>
-  <p>PUTRAMODZ</p>
+  <p>Akbarbarz</p>
   <p>hidup itu sementara kawan</p>
   <p>Apa Yang Perlu Kamu sombongkan?</p>
 <p>Alwys Bersyukur yaa ><</p>
-<p><a href="https://youtube.com/@Putra_Modz_">- subscribe ya</a><p>
+<p><a href="https://youtube.com/@Akbarbarz">- subscribe ya</a><p>
   
 </div>
     <div align="center">
